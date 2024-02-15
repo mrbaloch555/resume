@@ -1,1 +1,1 @@
-Currently looking for a remote job, if you are recurter or someone could help, I will appretiate. If developer need help can contact me any time on discord username (balochdev).
+Currently looking for a remote job, if you are a recruiter or someone who could help, I would appreciate it. If the developer needs help can contact me at any time on Discord username (balochdev).
